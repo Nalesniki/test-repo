@@ -2,3 +2,4 @@
 
 ggfffef
 bnmbbm
+ojojoojoj dodaje coś
